@@ -1,1 +1,0 @@
-# Haruy-Sushi
